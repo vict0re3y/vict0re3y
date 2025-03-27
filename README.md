@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 me gustaria colaborar con compaleros de 
 - 🤔 I’m looking for help with ...
 - 💬 no me preguntes nada 
-- 📫 How to reach me: ...
+- 📫 como contactarme: no me contactes 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: me falta un rillon 
+- ⚡ Fun fact: tengo en higado verde fosforito 
 -->
